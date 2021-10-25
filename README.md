@@ -1,4 +1,4 @@
-- 👋 <strong>Hi I’m Maritza Ledezma<strong>
+👋 <strong>Hi I’m Maritza Ledezma<strong>
 
 games,books,art,music and photography is my domain to live a happy life :) 
 
