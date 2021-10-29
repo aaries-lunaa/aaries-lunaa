@@ -1,6 +1,14 @@
 👋 <strong>Hi I’m Maritza Ledezma<strong>
-
-games,books,art,music and photography is my domain to live a happy life :) 
+  
+          *:･ﾟ✧(=✪ ᆺ ✪=)*:･ﾟ✧
+  
+           My realm includes: 
+            📷 photography
+            🎨 art 
+            📚 books
+            🎼 music
+            ☕️ coffee
+            🎮 games
 
 <!---
 aaries-lunaa/aaries-lunaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
